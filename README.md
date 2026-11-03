@@ -135,6 +135,7 @@ sistema_restaurante/
 **Tainara Oliveira Souza**
 
 GitHub: [@Tainara19631](https://github.com/Tainara19631)
+Link do Vídeo: https://drive.google.com/file/d/17x7MTGndH5Vm9FU3F3F0NUoNeEW5gMLV/view?usp=sharing
 
 ---
 
